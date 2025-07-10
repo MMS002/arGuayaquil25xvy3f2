@@ -1,1 +1,0 @@
-# arGuayaquil25xvy3f2
